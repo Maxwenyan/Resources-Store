@@ -9,9 +9,9 @@
 
 ## 附言
 
-你知道吗？Max温焰这位大佬很开放awa
-每次一有什么新资源新发现都会发在**Github**或者<span title="群号：316525046">**MTRBBS**</span>/<span title="群号836291719
-问题填 Github 我看到就会给你过哒qwq">**ANTE**</span>群里
+你知道吗？Max温焰这位大佬很开放awa  
+每次一有什么新资源新发现都会发在**Github**或者<span title="群号：316525046">**MTRBBS**</span>/<span title="群号：836291719
+问题填 Github 我看到就会给你过哒qwq">**ANTE**</span>群里  
 所以想要~~抢资源快人一步~~最新消息还请多多关注这两个群
 
 
