@@ -6,7 +6,7 @@
 
 TSG18 型受电弓最早使用于庞巴迪 Movia 456 型列车(A2)，直到如今依然在使用
 
-<div align ="center"><img src="https://upload.wikimedia.org/wikipedia/commons/b/b8/A2_Train_%2801x067-068%29_entering_Kengkou_Station%2C_Guangzhou_Metro_20191013.jpg "width=50% title="广州地铁A2型列车  
+<div align ="center"><img src="https://upload.wikimedia.org/wikipedia/commons/b/b8/A2_Train_%2801x067-068%29_entering_Kengkou_Station%2C_Guangzhou_Metro_20191013.jpg" width=50% title="广州地铁A2型列车  
 图源：维基百科"/>
 
 广州地铁 A2 型列车
